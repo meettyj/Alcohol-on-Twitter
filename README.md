@@ -1,2 +1,0 @@
-# meettyj
-Alcohol on Twitter
